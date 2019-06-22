@@ -9,3 +9,4 @@ can i clone
  yes i can. 
  
 no you cant
+what are you talking bout bro???? gawd
